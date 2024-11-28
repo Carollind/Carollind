@@ -1,0 +1,5 @@
+- 👋 Olá me chamo @Carollind
+- 👀 Estou interessada em emprego
+- 💞️ Eu estou trabalhando com Alura
+- 📫 Entra em contato comigo 00001092879286sp@al.educacao.sp.gov.br
+- 😄 Pronouns:Ela/Dela
